@@ -17,7 +17,7 @@
 
 点击访问：<a href="https://hl385.pages.dev/">黑料网今日黑料首页</a>
 
-点击访问：<a href="https://cg01-1.pages.dev/>TikTok成人版</a>
+点击访问：<a href="https://cg01-1.pages.dev/">TikTok成人版</a>
 
 点击访问：<a href="https://hl374.pages.dev/">黑料爆料网</a>
 
